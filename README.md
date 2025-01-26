@@ -11,4 +11,4 @@ Hi there! 👋 I’m **ZXRO**, and I'm currently starting to program
 
  ## 🌐 Socials
 ### everything 
-https://linktr.ee/zxroo_
+https://linktr.ee/zxroo_‎ 
