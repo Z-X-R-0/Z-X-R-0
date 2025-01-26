@@ -8,8 +8,3 @@ Hi there! 👋 I’m **ZXRO**, and I'm currently starting to program
 
 ### Hardware
 - **M5stickC plus2**
-
- ## 🌐 Socials
-### Instagram
-zxroo_
-
