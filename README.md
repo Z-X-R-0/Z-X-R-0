@@ -10,5 +10,6 @@ Hi there! 👋 I’m **ZXRO**, and I'm currently starting to program
 - **M5stickC plus2**
 
  ## 🌐 Socials
-### everything 
-https://linktr.ee/zxroo_‎ 
+### Instagram
+zxroo_
+
